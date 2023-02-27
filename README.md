@@ -1,1 +1,1 @@
-hard work changes things 
+with software engineering i will make it 
